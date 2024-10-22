@@ -1,2 +1,1 @@
-# nogen-af-kians-ting-
-nogen af kians ting!
+DU ER MEGA SUPER DUPER MEGA GAY!!!!!!!!!
