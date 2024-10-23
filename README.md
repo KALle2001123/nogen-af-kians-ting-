@@ -1,1 +1,1 @@
-DU ER MEGA SUPER DUPER MEGA GAY!!!!!!!!!
+SOM de står der i titlen nogle af kians ting din adam og så er der også noget quant v!
